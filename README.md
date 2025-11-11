@@ -1,4 +1,4 @@
-important info can be found on my ↪ carrd ! but the basics aside from that are:
+important info can be found on my carrd ! but the basics aside from that are:
 
 1. you can always cuddle, hide behind, kiss, or boop me!
 2. i'm often afk so just whisper me if you need something!
