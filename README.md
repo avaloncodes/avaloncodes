@@ -7,6 +7,6 @@ important info can be found on my carrd ! but the basics aside from that are:
 5. flirting is fine as long as ur not a minor :>
 
 ship/fandom stuff:
-1. i am a multishipper and idc if you hate my ships (ex: neuvifuri, zhongxiao) unless you're gonna argue and act like a child. i'll just block cuz i'm too old for that
-2. i'll also block if you ship anything that makes me uncomfy
-3. i take zero offense to being hid or blocked for any reason if above makes you uncomfortable as it's no longer my business at that point
+1. i am a multishipper! idc if you hate my ships (ex: neuvifuri, zhongxiao) cuz shipping rly isnt that serious lol. though if you're gonna argue and act like a child, i'll just block cuz i'm too old for that (and so are you)
+2. i'll also block if you ship anything that makes me uncomfy (basically just a child with an adult or a rapist with their victim)
+3. i take zero offense to being hid or blocked for any reason if above makes you uncomfortable as it's no longer my business at that point! everyone has the right to be comfortable online
